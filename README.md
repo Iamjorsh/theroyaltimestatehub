@@ -1,2 +1,2 @@
 # theroyaltimestatehub
-Official website for The Royaltim Estate Hub
+Official website for The Royaltimfun Nigeria Limited Estate Hub
